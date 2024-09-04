@@ -1,6 +1,4 @@
-## Hi there 👋
-
-# 💫 About Me:
+# Hi there 👋:
 ⚡ I'm a self-taught web developer<br>🌱 My goal is to build a business so I can spend more time with family<br><br>
 
 
