@@ -1,5 +1,5 @@
 # Hi there 👋:
-⚡ I'm a self-taught web developer<br>🌱 My goal is to build a business so I can spend more time with family<br><br>
+⚡ I'm a self-taught programmer<br>🌱 I enjoy building things<br><br>
 
 
 ## 🌐 Socials:
