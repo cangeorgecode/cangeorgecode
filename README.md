@@ -1,5 +1,5 @@
 # Hi there 👋:
-⚡ Self-taught programmer<br>🌱
+🧙‍♂️ Self-taught programmer building an online business, so that I can quit my 9-5 and spend more time with my family 🌱
 
 
 ## 🌐 Socials:
